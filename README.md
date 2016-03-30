@@ -1,0 +1,2 @@
+# Jurnal
+hanya untuk jurnal
